@@ -1,1 +1,1 @@
-| Sohila Hussien | sohaila707 | Developer | 
+| Omar Adel | omar-adel | Frontend | Developer | 
